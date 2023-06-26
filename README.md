@@ -1,0 +1,1 @@
+# Hotel-Okinawa-Resort
